@@ -11,5 +11,5 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I like to travel.
-* Ask Mr. Vu anything:
+* Ask Mr. Vu anything: What is your favorite color? 
 * List your sports and extracurriculars you participate in
